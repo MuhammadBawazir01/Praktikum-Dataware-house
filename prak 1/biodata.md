@@ -1,1 +1,3 @@
-Muhammad Abdullah Saleh Bawazir - 065002000002
+Praktikum 1
+Muhammad Abdullah Saleh Bawazir 
+065002000002
